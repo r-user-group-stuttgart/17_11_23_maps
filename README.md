@@ -15,4 +15,4 @@ Aufgrund von begrenzten Plätzen lohnt es sich rechtzeitig zu erscheinen!
 
 Wir freuen uns auf euer Erscheinen, 
 
-die R-Group Stuttgart
+die R User Group Stuttgart
